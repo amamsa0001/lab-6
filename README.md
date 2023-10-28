@@ -1,1 +1,1 @@
-[Lab 6 ](https://amamsa0001.github.io/lab-engagment-6/)
+[Lab 6 ](https://amamsa0001.github.io/lab-6/)
